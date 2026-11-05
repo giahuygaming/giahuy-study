@@ -1,2 +1,2 @@
-# giahuy-study
-Learn English "chan bo may di"
+# GiaHuyStudy.Com
+Learn English "vui vẻ"
